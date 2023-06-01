@@ -17,11 +17,15 @@ description = "Hilft Cannabis wirklich gegen Rheumaschmerzen oder alles nur Einb
 
 Monika, Ende 40, leidet schon seit mehr als 15 Jahren an Rückenschmerzen. Sie ging von Arzt zu Arzt, doch niemand konnte ihr sagen, was es genau für Rückenschmerzen sind. Nach einigen Jahren wurde bei ihr die Diagnose *Rheuma im Bereich des Rückens* festgestellt, eine Entzündung der Wirbelsäulengelenke. Doch trotz Unmengen an Medikamenten verbesserten sich die Schmerzen nicht. Schlussendlich versuchte sie es mit CBD-Tropfen in der Hoffnung, dass die Schmerzen endlich gelindert werden können.
 
+
+
 > “Ich hatte weder Wirkungen noch Nebenwirkungen!” 
 
 Monika erklärte, dass sie schon allerlei Medikamente gegen ihre Rheumaschmerzen ausprobiert habe, unter anderem Opiate und sogar Spritzen vom Rheumatologen. All diese Medikamente brachten ihr jedoch keinen grossen Nutzen. Und zusätzlich verspürte sie auch diverse Nebenwirkungen.
 
 Sie berichtete, dass sie in einem Zeitungsartikel gelesen hat, dass CBD-Tropfen vielen Menschen einen Nutzen brachten. Nachdem sie das gelesen hatte, entschied sie sich sofort, diese auszuprobieren. Sie hatte keine Angst davor diese auszuprobieren, denn sie dachte, es könne ja nur besser werden, als mit den anderen Medikamenten. Also begann sie die CBD-Tropfen voller Erwartungen zu sich zu nehmen und stellte dann aber relativ enttäuscht fest, dass sie höchstens eine leichte Müdigkeit verspürte.  
+
+
 
 > “Ich hätte daran geglaubt!”
 
@@ -35,9 +39,15 @@ Hanf ist eine der bestuntersuchten Pflanzen der Welt. Auch über Cannabis als He
 
 Die wohl bekannteste Apotheke, in der man Cannabispräparate kaufen kann, ist die Apotheke in Langnau I.E. Auch Monika hat ihre CBD-Tropfen von dieser Apotheke erhalten. In der Cannaplant-Abteilung arbeiten Apotheker, welche spezialisiert sind im Bereich Cannabis. Wir durften mit dem Apotheker Herrn Andreas Robbi ein kurzes Interview führen. Er erzählte, dass sie sehr viele Patienten in ihrer Apotheke haben, welche Cannabispräparate als Medikament konsumieren, z. T. sind es auch Präparate mit einem höheren THC-Anteil und es vielen auch wirklich hilft. Welche Cannabispräparat bei welchen Patienten angewendet werden, wird vor der Abgabe mit dem zuständigen Arzt besprochen. Herr Robbi erklärte, dass die Präparate alle ähnlich wirken und man nicht direkt sagen kann, dass genau dieses eine Präparat für Rheumaschmerzen am besten wirkt. Es kommt immer auf den Patienten an, es kann sein, dass der Patient keine Wirkungen bei diesem Präparat verspürt, aber bei einem andern schon. Wichtig sei vor allem die Dosierung der Medikamente, welche auch von Patient zu Patient unterschiedlich ist.
 
+
+
 > “Start slow, go slow, stay low.”
 
+
+
 Herr Robbi erzählte auch, warum sich diese Art von Medikament immer mehr ausprägt in unserer Gesellschaft und auch, dass er es sehr positiv sieht. Denn man verbindet Cannabis immer weniger mit einer Droge und man müsse auch keine Angst haben, denn der Unterschied vom Cannabis als Medikament und Cannabis als Droge ist gross. Bei den Cannabispräparaten reicht eine bestimmte Dossierung, man strebt nicht nach dem Verlangen mehr zu konsumieren im Vergleich zu Opiaten, dort ist es häufig der Fall, dass man immer eine höhere Dosierung haben möchte und immer mehr einnehmen muss um den gewünschten Effekt zu erzielen.
+
+
 
 > “Wenn ich eine solche Krankheit hätte, irgendwelche Schmerzen oder solche Geschichten, ich würde sicher immer zuerst mit irgendeinem Cannabinoide oder so probieren, bevor ich mir irgendein Opium, Morphin oder Oxytonon verschreiben lassen würde, das ist für mich eigentlich sonnenklar.“
 
